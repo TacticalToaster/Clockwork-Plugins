@@ -5,7 +5,6 @@ Started by TacticalToaster.
 
 Contact me:
 
-http://forums.cloudsixteen.com/members/tacticaltoaster.12945/
+http://forums.cloudsixteen.com/members/tacticaltoaster.12945/ 
 https://steamcommunity.com/id/moretacticaltoaster/
-
 Discord-TacticalToaster#2056
