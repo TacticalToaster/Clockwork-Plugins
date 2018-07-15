@@ -10,3 +10,5 @@ Contact me:
 <https://steamcommunity.com/id/moretacticaltoaster>
 
 Discord-TacticalToaster#2056
+
+I take suggestions, so feel free to send them!
